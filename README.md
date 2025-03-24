@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @saimahesh455 
 - 🌱 I’m currently learning
 - 💞️ I’m looking to collaborate with anyone who is passionated
-- 📫 How to reach me --> saimaheshtadivada12345@gmail.com
+- 📫 email id: saimaheshtadivada12345@gmail.com
 - 😄 Pronouns: he/him
 
 <!---
